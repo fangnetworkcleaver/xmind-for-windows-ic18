@@ -1,4 +1,4 @@
-# 
+# advanced XMind for Windows Integration | attachments + themes is the best XMind for Windows integration, featuring attachments and themes. Powerful, efficient, and optimized for
 
 
 
